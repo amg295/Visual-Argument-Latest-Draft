@@ -1,2 +1,3 @@
-# Visual Argument Latest Draft
+Visual Argument Latest Draft- Introduction
  
+This visual argument is designed to portray the dangers of social media and how it is inescapable. Each of the four quadrants portray different aspects and areas of life where different apps are prevalent. These days there is an app or program for everything. They often times become an addiction and can affect us and our lives whether we realize it or not. This is meant to appeal to a large audience from young women, children, and adults to show that it is a universal problem. By looking at it, the viewer should be able to relate in some way to an aspect of the image. It is as if technology is infiltrating our daily lives and is slowly closing in on us. 
